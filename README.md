@@ -6,7 +6,7 @@ How to Claim Your Discounts: 🎉
 
 Take Free Quizzes: Dive into our carefully crafted free quizzes that mirror the CLF-C01 exam. Test your knowledge and get a taste of what's to come.
 
-Score Big: Show off your expertise by acing the quizzes. The more questions you get right, the more discounts you unlock for your <a href="https://https://www.buddy4exam.com/amazon/clf-c01/free-questions">CLF-C01 exam prep materials</a>
+Score Big: Show off your expertise by acing the quizzes. The more questions you get right, the more discounts you unlock for your <a href="https://www.buddy4exam.com/amazon-exams/quiz">CLF-C01 exam prep materials</a>
 .
 
 Reveal Your Savings: As you conquer each quiz, watch as exclusive discounts unfold. It's like a reward for your dedication and a boost for your wallet!
